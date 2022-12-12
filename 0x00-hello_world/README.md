@@ -1,1 +1,1 @@
-be an amazing language
+c-language and me
